@@ -1,0 +1,3 @@
+#  GIT IS INTERSTING 
+  ## EASY TO LEARN
+  
